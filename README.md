@@ -1,5 +1,4 @@
-### Hi there 👋
 ```
-We're trapped in the belly of this horrible machine
-And the machine is bleeding to death
+"I will turn your cities into ruins and lay waste your sanctuaries
+and I will take no delight in the pleasing aroma of your offerings"
 ```
